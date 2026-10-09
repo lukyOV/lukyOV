@@ -1,4 +1,4 @@
-## Too bored to do it, maybe soon
+## Cybersecurity Student
 
 <!--
 **lukyOV/lukyOV** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
